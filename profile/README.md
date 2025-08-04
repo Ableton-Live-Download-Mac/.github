@@ -1,6 +1,6 @@
 # Ableton Live Download Mac - Professional Music Production Software  
 
-![Ableton Live Screenshot 1](https://static.macupdate.com/screenshots/267183/m/ableton-live-screenshot.png)  
+![Ableton Live Screenshot 1](https://oceanofdmg.com/wp-content/uploads/2019/06/Ableton-Live-Suite-10-for-MacOS-X-Latest-Version-Download-OceanofDMG.com_.jpg)  
 
 ---  
 
